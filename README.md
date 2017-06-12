@@ -1,5 +1,5 @@
 # helloworld
 
-Hi, good to see you humans.
-If YOU have any imformation about my pet, please contact me by crop circle. Piant a dinasour. Whatever kind is fine.
-Thank you for your corporation.
+Hi, good to see you.
+I am a human, and want to do some human things with you human.
+Seriously, totally human.
